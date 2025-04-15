@@ -1,4 +1,4 @@
-# 👋 Hi, I'm [Nining Rahayu]!
+# 👋 Hi, I'm Nining Rahayu!
 
 🎓 Strategic Communicator | Media Relations | Enthusiast Public Relations Specialist
 
