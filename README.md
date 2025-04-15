@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Nining Rahayu!
 
-🎓 Strategic Communicator | Media Relations | Enthusiast Public Relations Specialist
+🎓 Strategic Communicator | Media Relations Enthusiast and Public Relations
 
 I’m driven by creating effective communication strategies, building solid media relations, and turning narratives into real impact. My work has focused on managing events and projects, producing press releases, handling crisis communication, and running public campaigns that engage audiences and strengthen credibility.
 
